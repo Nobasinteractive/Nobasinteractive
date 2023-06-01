@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nobasinteractivestudio
+- 👀 I’m interested in videogames and entertainment media/mediums.
+- 🌱 I’m currently learning software development and game development.
+- 💞️ I’m looking to collaborate on videogames and media projects.
+- 📫 How to reach me nobasinteractivestudio@gmail.com
